@@ -1,1 +1,1 @@
-Heyyyy, I'm Gwyn... I program stuff sometimes usually silly little python games but I'm learning more. Have a wonderful day <3
+Haiiiiiiiiiiiiiiiiiiiiiiiiiiiii, I'm Gwyn.. I'm your stereotypical trans girl who codes shits and plays video games. Here you can find my funky shitty coding projects where i kinda just fuck around and find out.
